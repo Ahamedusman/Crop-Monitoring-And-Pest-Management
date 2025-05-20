@@ -1,1 +1,0 @@
-# Crop-Monitoring-And-Pest-Management
